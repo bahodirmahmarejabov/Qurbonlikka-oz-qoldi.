@@ -1,0 +1,1 @@
+# Qurbonlikka-oz-qoldi.
